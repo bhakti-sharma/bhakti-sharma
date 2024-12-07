@@ -5,7 +5,7 @@ Pronouns: she/her
 
 💻 I’m learning how to code for fun
 
-💬 Ask me about my thoughts on pop-culture, uWaterloo residence foods, learning Dutch, and AI usage in academia!
+💬 Ask me about my thoughts on pop-culture, uWaterloo residence foods, the Dutch language, and AI usage in academia!
 
 📧 Reach me at b26sharm@uwaterloo.ca
 
