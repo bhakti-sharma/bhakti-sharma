@@ -4,8 +4,6 @@ _pronouns: she/her_
 ## About me
 👩‍⚖️ I'm pursuing a degree in Legal Studies, Digital Arts Communication, and Business at UWaterloo. 
 
-💻 I got #bored and made this.
-
 💬 Enthusiastic about em dashes, currently fixated on LinkedIn games (especially Tango), reading Baby Teeth — it's getting creepy. 
 
 ## Let's Connect!
