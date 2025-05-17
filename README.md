@@ -4,7 +4,7 @@ _pronouns: she/her_
 ## About me
 👩‍⚖️ I'm pursuing a degree in Legal Studies, Digital Arts Communication, and Business at UWaterloo. 
 
-💬 Enthusiastic about em dashes (I'M NOT USING AI), currently fixated on LinkedIn games (especially Tango), reading Baby Teeth (it's getting creepy). 
+💬 Really enthusiastic about em dashes (I'm NOT using AI), LinkedIn games (especially Tango), just finished reading Baby Teeth by Zoje Stage (it was creepy). 
 
 ## Let's Connect!
 📧 Email me at: b26sharm@uwaterloo.ca
