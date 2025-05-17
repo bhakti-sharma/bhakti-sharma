@@ -2,7 +2,7 @@
 _pronouns: she/her_
 
 ## About me
-👩‍⚖️ I'm pursuing a degree in Legal Studies, Digital Arts Communication, and Business at UWaterloo. 
+👩‍⚖️ I'm pursuing a degree in Legal Studies, Digital Arts Communication, and Business at UWaterloo. I wasn't allowed to add a triple-major in sociology in my 2B term :( 
 
 💬 Really enthusiastic about em dashes (I'm NOT using AI), LinkedIn games (especially Tango), just finished reading Baby Teeth by Zoje Stage (it was creepy). 
 
